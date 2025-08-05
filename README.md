@@ -1,4 +1,4 @@
 # E-commerce-Website-
 my first project
 ## My Contact :
-### Ig: **@youcefkebbab_19** OR [My Instagram](https://www.instagram.com/youcefkebbab_19/)
+### Ig: [My Instagram](https://www.instagram.com/youcefkebbab_19/)
